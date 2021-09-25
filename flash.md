@@ -1,4 +1,0 @@
-# Historia de flash
-
-
-VAMOS A CREAR LA HISTORIA DE FLASH
